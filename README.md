@@ -1,1 +1,1 @@
-Most of my stuff here is private. Ocasionally, I'll publicize some of my repos though.
+Most of my stuff here is private. Ocasionally, I'll make some of my repos public though.
