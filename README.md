@@ -2,5 +2,5 @@
 
 **Most of my stuff here is private. I'll make repos public once in a while though.**
 
-If you want to chat about any of my projects, reach out to me via [LinkedIn](https://www.linkedin.com/in/agasthya-gangavarapu/) or Discord (yoaugust).
+If you want to chat about any of my projects, reach out to me via [LinkedIn](https://www.linkedin.com/in/agasthya-gangavarapu/) or Discord (@yoaugust).
 
