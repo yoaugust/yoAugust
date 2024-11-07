@@ -1,6 +1,4 @@
-> <sub><sup> _Image Credits: [Cyberpunk 2077](https://bergwerkderbilder.tumblr.com/post/660336345325191168/night-city-gifs)_ </sup></sub>
-> 
->![tumblr_3ef46416d97963fec836e1a2afbf1ace_25d25ebe_540](https://github.com/user-attachments/assets/5b4b44f6-0913-4779-bf2f-fb637d090749)
+> ![2b3bd2d91c876c2dcd13c8688aeb2be3](https://github.com/user-attachments/assets/56e1df3e-6dd9-4e59-aed8-2e4443e90205)
 
 **Most of my stuff here is private. I'll make repos public once in a while though.**
 - Discord: @yoaugust
