@@ -2,5 +2,5 @@
 
 **Most of my stuff here is private. I'll make repos public once in a while though.**
 - Discord: @yoaugust
-- Email: itzaugust.01@gmail.com
+- Email: itzaugust.01@gmail.com (don't really check often tbh. Discord or LinkedIn is the best way to reach me.)
 
