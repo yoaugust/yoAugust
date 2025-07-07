@@ -1,6 +1,6 @@
+yo wsp, im august
 
-
-I do ML, XR, Math, Game Development & Design, Frontier Tech
+i do ml, xr, math, game development & design, and frontier tech research
 
 
 Most of my stuff here is private. Message me if you want to chat about my work. 
