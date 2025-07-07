@@ -1,8 +1,8 @@
 yo wsp, im august
 
 i do ml, xr, math, game development & design, and frontier tech research
-- Discord: @yoaugust
-- Email: itzaugust.01@gmail.com
+- discord: @yoaugust
+- email: itzaugust.01@gmail.com
   
 
 
